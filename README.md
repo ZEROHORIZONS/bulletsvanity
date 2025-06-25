@@ -28,7 +28,7 @@ Griefer [blocktales fanart] by mizotek on DeviantArt
 ──────⊹⊱✫⊰⊹──────
 </p>
 
-[Rentry](https://rentry.co/GR13F3R-P1LL3D) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D)
+[Rentry](https://rentry.co/GR13F3R-P1LL3D) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D) ✧ A more [personal Rentry](https://rentry.co/risp9fo8) 
 
 Sign my [Ata](https://bulletv4nity-2000.atabook.org/) !!! 
 
