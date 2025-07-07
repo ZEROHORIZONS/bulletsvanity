@@ -32,4 +32,4 @@
 𝐑𝐞𝐚𝐝 𝐫𝐞𝐧𝐭𝐫𝐲 𝐛𝐲𝐢
 </p>
 
-@spawnseternalheart @NECROMANCYRISE @dummyinbed @shedbuilder @madebymsi @SweetDr3ams @tirgery123 @Wandererinlife @laineed @six-interger @objectsinmirror you guys are so awesome I'm so grateful I met you all /gen
+@spawnseternalheart @NECROMANCYRISE @dummyinbed @shedbuilder @madebymsi @SweetDr3ams @tirgery123 @Wandererinlife @laineed @six-interger @objectsinmirror you guys are so awesome I'm so grateful I met you all <3
